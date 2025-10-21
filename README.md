@@ -1,7 +1,53 @@
-The signs were there but subtle. Dustin Chandler never did his homework. He was labeled lazy at school. It wasn’t until years later when his mother, now working at a pediatric clinic, watched him struggle to renovate his first house that something clicked. “Son, I’m sorry for this,” she told him. “But you need to go get tested for ADHD.”
+短视频平台抖音过去几天出现大量“不想上班、想入党”的段子，许多人纷纷对着镜头半真半假地说：“我不想上班，也不想种田，我想入党，想为人民服务。”
 
-Chandler was officially diagnosed at 25. He learned that the developmental disorder could be passed on to his children, so he and his wife looked for signs in their kids. Like her father, their second child, a daughter, seemed to be the quiet, daydreamy type. She enjoyed reading independently since she could go at her own pace, and she excelled when her teacher taught her one-on-one. In elementary school, however, their concerns increased during a math challenge where students had to solve as many problems as possible within a minute, and she worked too slowly. In second grade, she was diagnosed with ADHD.
+在播放上亿次的“不想上班”“想入党”等话题下，这类短视频发布者以农民工、外卖员、工厂员工以及自媒体从业者为主。
 
-While doctors and researchers still aren’t sure of the exact cause of the disorder, “the predominant theory,” explains Stephen Rush, a professor of psychiatry at the University of Cincinnati, “is primarily genetics and the biology of what’s going on in the brain that seems to be associated with it.” Studies show that about 80 percent of the time there is a similar genetic component found among people who have ADHD compared to people who do not have it. 
+平日以宣传牛羊专用中药益生菌的账号“王瑞”就说：“不想喂牛了，想入党，当个省长、部长，实在不行，就当个村长。当不当官无所谓，主要是想为人民服务。”这个账号只有1000多粉丝，但这条视频却获3.8万个点赞、700多条评论。
 
-Scientists have discovered that people with the disorder experience specific brain chemistry changes as their dopamine and norepinephrine systems are dysregulated. These compounds, which are strongly associated with the ability to maintain concentration, seem to become depleted more quickly. “Dopamine is in charge of motivation, focus, and reward processing,” Frances Javier, psychiatrist and medical director at Neuro Wellness Spa in Marina del Rey, California, explains. “Norepinephrine is in charge of alertness, attention, and arousal, and these are the two main targets of stimulant medications for ADHD.”
+有网民说，这段宣誓词的重点不在于入党，而在于不想上班。但更多人觉得，重点还是在于入党、完成想象中的“为人民服务”的工作。
+
+诚然，入党不代表不用工作。不过，对许多在体制外工作的劳动者来说，入党、为人民服务，意味着进入体制，“上岸”、有稳定的工作。即便不是真能在现实中进体制，在网络上自嘲几句，也恰到好处地表达了他们的情绪。
+
+在这股玩笑的浪潮里，也有不少抖音账号用另一种方式回应：“你们这些人，真入了党为人民服务了，不出三年，就会出现在电视上，低着头认错：‘我对不起党，对不起国家，对不起人民。’” 这多少也反映出体制外人们对体制内形成的复杂印象：安全、稳定，但也不能排除虚伪和风险。 
+
+要进体制大门更困难
+从数据上看，入党进体制的愿望非常真实。截至去年底，中共党员总数达到1亿零27万1000人，比上一年净增108.6万。与此同时，公务员报考人数逐年上升，去年创下历史新高，达341万6000人。
+
+正在进行的2026年度公务员考试报名，虽然放宽报名年龄（由35岁放宽至38岁），但计划招录人数却减少1600人。这是自2019年以来连续七年扩招后的首次收缩。年龄放宽、毕业生增多，意味着竞争将更激烈。
+
+专注于考公培训的华图教育当值CEO李曼卿对《南方周末》说，国考招录人数减少，给地方公务员、央国企和事业单位缩招甚至停招，提供了方向指引，“预计未来几年会以小幅度缩招为主”。
+
+这一趋势与中央政策方向一致：在财政压力与科技进步的双重作用下，中央政府正希望逐步收缩体制内的人员规模和编制。今年3月的政府工作报告明确提出要“严控财政供养人员规模”。
+
+根据复旦大学中国社会主义市场经济研究中心学者张军、马欣榕、刘志阔的研究，2020年全国财政供养人员总数达6846万人。虽然总体仍在上升，但编制内在职人员已出现稳中有降的趋势。
+
+地方上，河南省去年4月宣布除学校、医院外事业单位精简60.7%，撤销137个机构，编制精简46.9%。更早之前，黑龙江省在2018年启动事业单位改革，到2019年底精简单位51%、编制29%。
+
+随着经济增长放缓、税收和土地出让收入下降，公务员薪资对一些地方政府而言已成负担，甚至不得不挪用其他专项资金发放工资。
+
+中国国务院审计署2024年财政审计报告显示，去年全国16省175县截留挪用41.64亿元（人民币，下同，7.56亿新元），用于偿还当地政府债务、发放公职人员工资等。
+
+包括医院、学校在内的事业单位，也面临类似压力。2023年，《21世纪经济报道》《澎湃新闻》报道，由于医院盈利下降，河南、广西及北京等地医生普遍降薪；一些高校教师则反映，每月仅发四五千元工资，难以维持生活。
+
+不仅事业单位员工待遇缩水、奖金延发，国有及国有控股企业的盈利也在下滑，国企今年前八个月利润总额同比下降2.7%。
+
+国企打破铁饭碗的改革也在加速推进。去年9月，国资委要求到2025年全面推行“末等调整”和“不胜任退出”制度，即绩效垫底者将面临降职或免职，无法胜任岗位者则可能被解除合同。
+
+不安全感让体制外劳动者仍渴望围城
+但以上降薪缩编的消息，并没有影响人们进体制的热情。因为在体制外，互联网大厂、房地产企业、金融公司频繁“优化”裁员，几乎成为常态。
+
+财新网今年8月报道，2024年末员工为3.59万人，较2021年峰值下滑约21%。阿里巴巴截至今年3月31日的员工人数从12.4万人，与2022年的25.5万人相比，缩减超过50%。报道指出，优先被调整的，总是35岁以上的员工。但这也在改变着年轻人的职业偏好。一名备考家乡公务员的上海高校学生说：“一旦进入私企，如果在35岁左右遭遇裁员，人到中年还要重新找工作，实在太不安稳。”
+
+智联招聘《2024年大学生就业力调研报告》显示，73.1%的毕业生希望进入政府机关、事业单位、央国企。期望进入民营企业的比例由2020年的25.1%降至2024年的12.5%。
+
+另一方面，大量的中年失业者被迫进入零工经济，进一步增加社会整体的不安全感。据《财经》杂志，中国超过七成网约车司机是失业后转入。
+
+《经济学人》9月的一篇文章指出，中国约有2亿人参与零工经济，占城市劳动力的40%。这些平台零工虽然灵活，但也面对收入波动、工作强度高、劳保弱的问题，他们当中的许多人难以购房，难以获得公共服务和社会保障，是“脆弱的就业者”。
+
+这种“零工化”的趋势，不再局限于滴滴、美团等互联网平台，也开始向制造业蔓延。研究劳动经济学的北京大学国家发展研究院副院长张丹丹去年提出，传统的长期、稳定雇佣模式逐渐被短期工和零工取代，零工成为制造业用工主体。多数零工没有长期劳动合同，社会保障覆盖率低，劳动权益难以得到有效保障。
+
+从城市服务到工厂车间，越来越多人在不稳定的就业环境中感到焦虑，此时体制内相对的稳定，就显得格外珍贵。而政府对产业的监管，也让不少在民营企业工作的人觉得：“还得在体制内，才更有安全感。”
+
+事实上，进体制的潮流并非一成不变。改革开放初期许多人下海经商创业，10年前移动互联网飞速发展，公务员离职投身大厂屡见不鲜。2015年、2016年国考报名人数罕见下滑，一度还有公务员流失的讨论。
+
+但在冠病疫情后的2022年，国考报名人数爆发式突破200万人，并逐年攀升，显示在地缘政治动荡、经济增长换挡的环境下，人们期待“入党、进体制、为人民服务”，能提供一个不完美但稳定的避风港。
